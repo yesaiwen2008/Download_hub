@@ -15,11 +15,11 @@
 
 迅雷网盘：[https://pan.xunlei.com/s/VOYsuB31dPHtRGyjOtyOhM85A1?pwd=kbz5#](https://pan.xunlei.com/s/VOYsuB31dPHtRGyjOtyOhM85A1?pwd=kbz5#)
 
-百度网盘：[https://pan.baidu.com/s/1Dd69fsYfmEOhPsX7yVSFkA?pwd=2045](https://pan.baidu.com/s/1Dd69fsYfmEOhPsX7yVSFkA?pwd=2045) 提取码: 2045。   **解压密码**：2045
+百度网盘：[https://pan.baidu.com/s/1Dd69fsYfmEOhPsX7yVSFkA?pwd=2045](https://pan.baidu.com/s/1Dd69fsYfmEOhPsX7yVSFkA?pwd=2045)     提取码: 2045。   **解压密码**：2045
 
 
 
-## 下载宝典目录
+## 下载宝典目录：
 
 ## 1. 哼哼猫123
 自媒体去水印下载首选哼哼猫123，可批量去水印下载抖音、快手、YouTube、小红书等大多数视频。
