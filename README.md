@@ -15,7 +15,7 @@
 
 迅雷网盘：[https://pan.xunlei.com/s/VOYsuB31dPHtRGyjOtyOhM85A1?pwd=kbz5#](https://pan.xunlei.com/s/VOYsuB31dPHtRGyjOtyOhM85A1?pwd=kbz5#)
 
-百度网盘：[https://pan.baidu.com/s/1Dd69fsYfmEOhPsX7yVSFkA?pwd=2045](https://pan.baidu.com/s/1Dd69fsYfmEOhPsX7yVSFkA?pwd=2045)     提取码: 2045。   **解压密码**：2045
+百度网盘：[https://pan.baidu.com/s/1Dd69fsYfmEOhPsX7yVSFkA?pwd=2045](https://pan.baidu.com/s/1Dd69fsYfmEOhPsX7yVSFkA?pwd=2045)     提取码: 2045。   **解压的密码**：2045
 
 
 
